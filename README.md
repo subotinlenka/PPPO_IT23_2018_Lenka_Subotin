@@ -1,1 +1,1 @@
-# PPPO_IT23_2018_Lenka_Subotin
+Projektni zadatak iz predmeta Principi prezentacije i prepoznavanja oblika 2021/2022
